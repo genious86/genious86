@@ -2,7 +2,7 @@
 - 👀 I’m interested in front-end jobs
 - 🌱 I’m currently learning vue.js
 - 💞️ I’m looking to collaborate on any interesting and mind challenging front end projects.
-- 📫 How to reach me +25470500345 is my number
+- 📫 How to reach me +254705000345 is my number
 - 😄 Pronouns: he/
 - ⚡ Fun fact: i love pasta simply because i ate it alot as a kid and believed it wasnt prepared right and id do better given the chance.
 
